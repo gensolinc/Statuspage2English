@@ -20,3 +20,4 @@
 | Full of opportunity | Shit is on fire |
 | ORACLE | Old Rich Asshole Called Larry Ellison |
 | Great company culture | Instead of paying proper market rate for your salary, have some company culture™ instead | 
+| We are doing a RCA | It wasn't my fault
